@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/9629c09df3c94012a801a4ee7b09e7f1/eyJxIjoxMDAsIndlYnAiOjB9/1.gif?token-hash=dbycN4LYIABA0j1jLIDmwpA_AvNyf5nrHJJw-Th6qf8%3D&token-time=1777766400)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://h0rr0z.atabook.org) , [prns](https://pronouns.cc/@Gambler) , [rentry]< wip..
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://h0rr0z.atabook.org) , [Pronouns](https://pronouns.cc/@Gambler) , [Rentry](https://rentry.co/chickenrxulette)
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/98294b89499b4660827d7dbd52697adf/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=1mSgDtcw1UjJ9b_POVFIIKirYPpK-2X_EwHNuIre0Cw%3D&token-time=1777766400)ㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/fef5610e1a144481a1fb50cb13b3b8fe/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=HZnzlwP7yyo73o84igRKKUQC-zPhfM4TbhQX-ScosAI%3D&token-time=1777766400)
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/795e4d675c284ef0aed8b529124cd35b/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=_vfeat_yzejQyej9BB1oM7anQ9uyDeW_ZOCMNVjpK6M%3D&token-time=1777766400)
